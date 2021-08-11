@@ -1,4 +1,4 @@
-               ▪️ Hi, I’m @gsten01-Twitch▪️
+             ▪️ Hi, I’m @gsten01-Twitch▪️
 - 👀 I’m interested in gaming projects.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on nothing atm.
